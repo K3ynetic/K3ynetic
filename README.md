@@ -2,7 +2,7 @@
 
 # Keywasie Dixon
 
-**K3ynetic · Founder of Dixon Innovative Labs**
+**K3ynetic · Founder of Dixon Innovative Labs & Dixon Crypto Consulting**
 
 AI Systems Developer · Embedded Systems & Agentic AI Engineering
 
